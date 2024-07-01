@@ -1,1 +1,1 @@
-Ultra passionate about building *good looking* products from the ground up
+Ultra passionate about creating *good looking* products from the ground up
